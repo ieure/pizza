@@ -201,7 +201,8 @@ collaborator—if you ask and you're not some kind of deep-dish-eating monster.
 
 #### Portland
 
-* [Apizza Scholls](http://apizzascholls.com/)
+* [Dove Vivi](http://www.dovevivipizza.com/)
+* [Lovely's Fifty-Fifty](https://lovelysfiftyfifty.wordpress.com/)
 * [Pyro Pizza](http://pyropizzacart.com/)
 * [Ken's Artisan](http://kensartisan.com/)
 
